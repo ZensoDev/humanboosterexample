@@ -2,9 +2,7 @@ Formation GIT
 Avec Human Booster,
 Delphine, Maria
 et Sophiane
-
 Ajout de la ligne
-
 C'est bientot le WE!
-
 Dans quelques heures :p
+J'ai hate d'être ce soir à mon concert.
