@@ -1,3 +1,4 @@
 Formation GIT
-Avec Human Booster
-Et Sophiane ZENNOUDA
+Avec Human Booster,
+Delphine, Maria
+et Sophiane
